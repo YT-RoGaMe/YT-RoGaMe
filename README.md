@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @YT-RoGaMe
 - 👀 I’m interested in fg
 - 🌱 I’m currently learning how to make a discord bot
-- 💞️ I’m looking to collaborate on nothing
+- 💞️ I’m looking to collaborate on fg videos even if I am already overloaded of it
 - 📫 How to reach me, dm me on discord
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: there is no fun fact
